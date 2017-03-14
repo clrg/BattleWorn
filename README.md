@@ -22,9 +22,9 @@ Galright almost smiles, "Ah, I'd almost forgotten some elves have balls. Welcome
 
 Duodrin embraces you before explaining, "The undead forces to the north west are massing. The Council of Elves has moved our forces in that direction as there is not the natural protection that the great rivers afford us against the orcs. I have brought as many with me as I could, perhaps 200."
 
-You know the seriousness of the undead threat, even if your men do not appreciate it so. Galright scoffs, "So how do we survive this day so that we can defend your kind for you?"
+You know the seriousness of the undead threat, even if your men do not appreciate it so. Galright scoffs, "So how do we survive this day so that we can defend your kind whilst your council abandons us?"
 
-Duodrin looks at you, knowing you are thinking the same thing, and before turning to Galright, "200 elves are not worth a lot on the plains or in trees where we'd be quickly overwhelmed. However if it were a narrow battle with high sides then 200 elven bowmen would be lethal to the thickest of hides." Galright nods, he knows first hand the famed accuracy of the elvish bow.
+Duodrin looks at you to confirm you are thinking the same thing then turns to Galright, "200 elves may not be worth a lot on the plains or in trees where we'd be quickly overwhelmed. However if it were a narrow battle with high sides then 200 elven bowmen would be lethal to the thickest of hides." Galright nods, he knows first hand the famed accuracy of the elvish bow.
 
 You take over, "Right, we need to funnel their forces and isolate their strength. In the mountain pass a small force of our most hardened men could hold the front line whilst your arrows pick them off. So we must move the battle away from these open plains."
 
